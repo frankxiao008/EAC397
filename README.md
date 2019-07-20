@@ -13,3 +13,6 @@ https://learningcommons.lib.uoguelph.ca/item/dealing-group-conflict
 
 Why Working Together Doesn't Always Work
 https://www.psychologytoday.com/ca/blog/glue/201407/why-working-together-doesnt-always-work
+
+What Great Listeners Actually Do
+https://hbr.org/2016/07/what-great-listeners-actually-do
